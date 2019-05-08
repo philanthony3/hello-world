@@ -2,4 +2,4 @@
 
 1st liddle project
 
-Sometimes I think that I think too little.  I fast long walks on Jupiter and playing basketball on Mars.  
+Sometimes I think that I think too little.  I enjoy fast long walks on Jupiter and playing basketball on Mars.  
